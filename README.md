@@ -1,1 +1,1 @@
-Link : https://vanashri-d.github.io/vanashri-portfolio/
+Link : https://vnshri.github.io/vanashri-portfolio/
